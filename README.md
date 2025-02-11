@@ -4,6 +4,6 @@ _A verdadeira arte é só um reflexo de quem a contempla._
 
 **☆★ Suguru Geto!! ★☆**
 
-<p><img src="https://64.media.tumblr.com/6d831d5ac9080a32be87e8395d6712e1/683a8bab5775de63-7b/s100x200/c91073d7be58f7ec72d32f8c2fa812e27ddf77bd.gifv"></p>
+<p><img src="https://64.media.tumblr.com/1d7329e2937c9acd0d40b1dcb68a57d5/683a8bab5775de63-50/s100x200/9216d045a649ef28a9a187e1dfcbe2c460ea4dcd.gifv"></p>
 
 > Eu gosto do RPG do Cellbit
