@@ -1,4 +1,4 @@
-### ***Ariel***
+### ***Ariel*** <img  src="https://64.media.tumblr.com/9f6c80a85cd25abb21126e766c8c9271/d12d01be3dffe4b2-a9/s75x75_c1/79595f1be512af72693f206e2512253be3cf0f7e.gifv">
 
 _A verdadeira arte é só um reflexo de quem a contempla._
 
