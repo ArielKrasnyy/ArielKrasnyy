@@ -1,6 +1,6 @@
 <img src="https://64.media.tumblr.com/f2302ac73c0ed892928f3304a6d30901/d12d01be3dffe4b2-12/s400x600/8e38087aac2e4ea74659d1a59cb84d6c15ab46a8.gifv">
 
-***Ariel for real!***
+***Ariel for real!*** <img src="https://64.media.tumblr.com/892af5181935497e8aa64cdec1fb3355/cd08a8b4b4faa9e3-05/s75x75_c1/a0db87603f1fda397f90d20796b4cb44717dc01c.gifv">
 
 _A verdadeira arte é só um reflexo de quem a contempla._
 
