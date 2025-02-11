@@ -1,5 +1,5 @@
 <img src="https://64.media.tumblr.com/f2302ac73c0ed892928f3304a6d30901/d12d01be3dffe4b2-12/s400x600/8e38087aac2e4ea74659d1a59cb84d6c15ab46a8.gifv">
-<h1>***Ariel for real!***</h1>
+<h2>Ariel for real!</h2>
 
 <img  src="https://64.media.tumblr.com/9f6c80a85cd25abb21126e766c8c9271/d12d01be3dffe4b2-a9/s75x75_c1/79595f1be512af72693f206e2512253be3cf0f7e.gifv">
 
